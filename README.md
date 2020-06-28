@@ -1,2 +1,2 @@
 # hello-world
-just learn
+Master Chief Petty Officer John-117, or "Master Chief", is a fictional character and the protagonist of the Halo multimedia franchise. Master Chief is a playable character in the series of science fiction first-person shooter video games Halo: Combat Evolved, Halo 2, Halo 3, Halo 4, and Halo 5: Guardians. Outside video games, the character appears in books and graphic novels—Halo: The Fall of Reach, Halo: The Flood, Halo: First Strike, and Halo: Uprising—and has cameos in other Halo media, including Halo: Reach, Halo: Ghosts of Onyx, The Halo Graphic Novel, Halo Legends and Halo 4: Forward Unto Dawn.
